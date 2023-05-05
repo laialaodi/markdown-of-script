@@ -17,6 +17,12 @@ Harry was lying on the ground in the front of the gate of castle. Voldemort and 
 
 **Voldemort**: Harry Potter was dead! "The boy who lived" was dead when he ran away! You were cheated by Harry Potter!
 
+**Bellatrix**: My host is so good! You kill Harry Potter and Dumbledore. I am really admit you! I'm really your person.
+
+**Voldemort**: I want to see it for a long time, for who is right deceitful.
+
+Everyone look at Malfoy. Malfoy looks extremely embarrassed.
+
 **Teachers and Students**: (Sad cry)
 
 **Voldemort**: Surrender! My Death Eaters are stronger than you! Join us, you will get reward! You will granted immunity!
@@ -31,7 +37,7 @@ Longbottom's wand flew away.
 
 **Bellatrix**: He's the son of Auror, Longbottom!
 
-**Voldemort**: Surrender of die!
+**Voldemort**: Surrender or die!
 
 **Longbottom**: I'll join you when hell freezes over! Dumbledore's Army!
 
