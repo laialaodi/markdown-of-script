@@ -7,10 +7,13 @@ categories: post
 
 # Actor
 - Harry Potter
-- Hermione Granger
 - Ron Weasley
+- Hermione Granger
+- Teachers and Students
 - Neville Longbottom
 - Voldemort
+- Bellatrix Lestrange
+- Albus Dumbledoreg
 
 # Play start
 Harry was lying on the ground in the front of the gate of castle. Voldemort and Death Eaters thought he was dead, but how very wrong they were.
@@ -45,15 +48,15 @@ Longbottom's wand flew away.
 
 **Longbottom**: Kill him!
 
-**Voldemort**: Alright, if you are still refuse to realize your mistake. Accio!
+**Voldemort**: Alright, if you are still refuse to realize your mistake. Petrificus Totalus!
 
-Sorting Hat flew over Longbottom's head.
+Longbottom can't move.
 
-**Voldemort**: Incendio! Now Longbottom is showing the result of defying me!
+**Harry**: Protego.
 
-**Harry**(quiet): Protego.
+**Voldemort**: Avada Kedavra!
 
-Longbottom stopped burning and felt amazed.
+Longbottom can move again and feel amazed.
 
 **Voldemort**(frightened): What? How? Who?!!
 
@@ -112,5 +115,15 @@ The sun rose. The sunlight throw on them.
 Voldemort dead.
 
 **Everyone**: Hooray! Hooray! Harry Potter is the hero!
+
+Harry take The Resurrection Stone from Voldemort and turn to Hermione and Ron.
+
+**Harry**: Are you thinking what I'm thinking?
+
+**Hermione and Ron**: Yes.
+
+Harry, Ron and Hermione go to Dumbledore's body. Harry put The Resurrection Stone on Dumbledore's body. Dumbledore reborn. Dumbledore smile to them.
+
+**Dumbledore**: At last, you come.
 
 (THE END)
