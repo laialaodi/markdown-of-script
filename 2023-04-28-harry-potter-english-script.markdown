@@ -7,13 +7,21 @@ categories: post
 
 # Actor
 - Harry Potter
+  - Zhang Qi
 - Ron Weasley
+  - Liu Junjie
 - Hermione Granger
+  - Yu Jia'er
 - Teachers and Students
+  - (TBD)
 - Neville Longbottom
+  - (TBD)
 - Voldemort
+  - Liu Zuohan
 - Bellatrix Lestrange
+  - (TBD)
 - Albus Dumbledore
+  - (TBD)
 
 # Play start
 Harry was lying on the ground in the front of the gate of castle. Voldemort and Death Eaters thought he was dead, but how very wrong they were.
