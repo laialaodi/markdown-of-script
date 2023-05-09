@@ -24,7 +24,7 @@ categories: post
   - (TBD)
 
 # Play start
-Harry was lying on the ground in the front of the gate of castle. Voldemort and Death Eaters thought he was dead, but how very wrong they were.
+Harry was lying on the ground in the front of the gate of castle. Voldemort and Death Eaters think he was dead, but how very wrong they are.
 
 **Voldemort**: Harry Potter was dead! "The boy who lived" was dead when he ran away! You were cheated by Harry Potter!
 
@@ -34,25 +34,27 @@ Harry was lying on the ground in the front of the gate of castle. Voldemort and 
 
 Everyone look at Malfoy. Malfoy looks extremely embarrassed.
 
+**Malfoy**: Don't look at me!
+
 **Teachers and Students**: (Sad cry)
 
-**Voldemort**: Surrender! My Death Eaters are stronger than you! Join us, you will get reward! You will granted immunity!
+**Voldemort**: Surrender! My Death Eaters are stronger than you! Join us, you will get reward! You will grant immunity!
 
 **Longbottom**(ran out): Voldemort, Expelliarmus!
 
 **Voldemort**: Hahaha, Expelliarmus!
 
-Longbottom's wand flew away.
+Longbottom's wand fly away.
 
 **Voldemort**: Who are you, little boy.
 
 **Bellatrix**: He's the son of Auror, Longbottom!
 
-**Voldemort**: Surrender or die!
+**Voldemort**: Surrender or die.
 
 **Longbottom**: I'll join you when hell freezes over! Dumbledore's Army!
 
-**Some Students**: Dumbledore's Army!
+**D.A. members**: Dumbledore's Army!
 
 **Longbottom**: Kill him!
 
@@ -68,7 +70,7 @@ Longbottom can move again and feel amazed.
 
 **Voldemort**(frightened): What? How? Who?!!
 
-**Harry**: It's me, Voldemort! Surprise!
+**Harry**: It's me, Voldemort!
 
 **Everyone but Harry and Voldemort**: Harry! HE'S ALIVE!
 
@@ -76,15 +78,15 @@ The yell of shock, the cheers, the screams on every side of stifled at once. The
 
 **Voldemort**: Weren't you dead? Why? My magic failed again?
 
-**Harry**: I'm not dead, Voldemort. I don't wand anyone else try to help, and in the total silence his voice carried like a trumpet call, It's got to be like this. It's got to be me.
+**Harry**: I'm not dead, Voldemort. I don't wand anyone else try to help. It's got to be like this. It's got to be me.
 
-Voldemort hissed.
+Voldemort hiss.
 
 **Voldemort**: Potter doesn't mean that. That isn't how he works, is it? Who are you going to use as a shield today, Potter?
 
 **Harry**: Nobody, There are no more Horcruxes. It's just you and me. Neither can live while the other survives, and one of us is about to leave for good ...
 
-Voldemort whole body was taut and his red eyes stared, a snake that was about to strike.
+Voldemort whole body is taut and his red eyes stared, a snake that is about to strike.
 
 **Voldemort**: One of us? You think it will be you, do you, the boy who has survived by accident, and because Dumbledore was pulling the strings?
 
@@ -120,17 +122,17 @@ The sun rose. The sunlight throw on them.
 
 **Harry**: Expelliarmus!
 
-Voldemort dead.
+Voldemort fall down and dead.
 
 **Everyone**: Hooray! Hooray! Harry Potter is the hero!
 
-Harry take The Resurrection Stone from Voldemort and turn to Hermione and Ron.
+Harry turn to Hermione and Ron.
 
 **Harry**: Are you thinking what I'm thinking?
 
 **Hermione and Ron**: Yes.
 
-Harry, Ron and Hermione go to Dumbledore's body. Harry put The Resurrection Stone on Dumbledore's body. Dumbledore reborn. Dumbledore smile to them.
+Harry, Ron and Hermione go to Dumbledore's body. Harry take out The Resurrection Stone from his pocket and put it on Dumbledore's body. Dumbledore reborn. Dumbledore smile to them.
 
 **Dumbledore**: At last, you come.
 
