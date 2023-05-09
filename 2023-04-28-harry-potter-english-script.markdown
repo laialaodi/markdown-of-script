@@ -13,7 +13,7 @@ categories: post
 - Neville Longbottom
 - Voldemort
 - Bellatrix Lestrange
-- Albus Dumbledoreg
+- Albus Dumbledore
 
 # Play start
 Harry was lying on the ground in the front of the gate of castle. Voldemort and Death Eaters thought he was dead, but how very wrong they were.
