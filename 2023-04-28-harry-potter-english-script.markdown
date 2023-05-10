@@ -147,3 +147,32 @@ Harry, Ron and Hermione go to Dumbledore's body. Harry put The Resurrection Ston
 **Dumbledore**: At last, you come.
 
 (THE END)
+
+# Credits
+- Han Yuchen
+  - Narrator
+- He Xu
+  - Project Manager
+  - Writer of the old play script (now abandoned)
+  - Actor
+- Li Yihui
+  - Actor
+- Liu Junjie
+  - Actor
+- Lin Yancheng
+  - Narrator
+- Liu Zuohan
+  - One of the writer of play script
+  - Provided website to show script on web
+  - Actor
+- Liu Zile
+  - Actor
+- Ma Jiajun
+  - Actor
+- Wen Yuhan
+  - Narrator
+- Yu Jia'er
+  - Actor
+- Zhang Qi
+  - One of the writer of play script
+  - Actor
