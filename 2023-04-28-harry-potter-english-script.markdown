@@ -5,23 +5,29 @@ date: 2023-04-28 18:18:04 +08:00
 categories: post
 ---
 
-# Actor
+# Actor (In Alphabetical Order)
+- Albus Dumbledore
+  - Ma Jiajun
+- Bellatrix Lestrange
+  - Li Yihui
+- Draco Malfoy
+  - Liu Zile
 - Harry Potter
   - Zhang Qi
-- Ron Weasley
-  - Liu Junjie
 - Hermione Granger
   - Yu Jia'er
-- Teachers and Students
-  - (TBD)
+- Narrator
+  - Han Yuchen
+  - Lin Yancheng
+  - Wen Yuhan
 - Neville Longbottom
-  - (TBD)
+  - He Xu
+- Ron Weasley
+  - Liu Junjie
+- Teachers and Students
+  - (Narrators)
 - Voldemort
   - Liu Zuohan
-- Bellatrix Lestrange
-  - (TBD)
-- Albus Dumbledore
-  - (TBD)
 
 # Play start
 Harry was lying on the ground in the front of the gate of castle. Voldemort and Death Eaters think he was dead, but how very wrong they are.
