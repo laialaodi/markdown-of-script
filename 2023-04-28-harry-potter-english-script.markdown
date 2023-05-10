@@ -30,17 +30,19 @@ categories: post
   - Liu Zuohan
 
 # Play start
-Harry was lying on the ground in the front of the gate of castle. Voldemort and Death Eaters think he was dead, but how very wrong they are.
+Harry is lying on the ground in the front of the gate of castle. Voldemort and Death Eaters think he was dead, but how very wrong they are.
 
 **Voldemort**: Harry Potter was dead! "The boy who lived" was dead when he ran away! You were cheated by Harry Potter!
+
+**Draco**: Hahaha. Yes! You simpleton!
 
 **Bellatrix**: My host is so good! You kill Harry Potter and Dumbledore. I am really admit you! I'm really your person.
 
 **Voldemort**: I want to see it for a long time, for who is right deceitful.
 
-Everyone look at Malfoy. Malfoy looks extremely embarrassed.
+Everyone look at Draco. Draco looks extremely embarrassed.
 
-**Malfoy**: Don't look at me!
+**Draco**: Don't look at me!
 
 **Teachers and Students**: (Sad cry)
 
@@ -132,13 +134,15 @@ Voldemort fall down and dead.
 
 **Everyone**: Hooray! Hooray! Harry Potter is the hero!
 
-Harry turn to Hermione and Ron.
+**Draco and Bellatrix**: No!!!
+
+Harry take The Resurrection Stone from Voldemort and turn to Hermione and Ron.
 
 **Harry**: Are you thinking what I'm thinking?
 
 **Hermione and Ron**: Yes.
 
-Harry, Ron and Hermione go to Dumbledore's body. Harry take out The Resurrection Stone from his pocket and put it on Dumbledore's body. Dumbledore reborn. Dumbledore smile to them.
+Harry, Ron and Hermione go to Dumbledore's body. Harry put The Resurrection Stone on Dumbledore's body. Dumbledore reborn. Dumbledore smile to them.
 
 **Dumbledore**: At last, you come.
 
