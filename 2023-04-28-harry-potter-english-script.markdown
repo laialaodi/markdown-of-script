@@ -136,6 +136,8 @@ Voldemort fall down and dead.
 
 **Draco and Bellatrix**: No!!!
 
+Draco and Bellatrix run away.
+
 Harry take The Resurrection Stone from Voldemort and turn to Hermione and Ron.
 
 **Harry**: Are you thinking what I'm thinking?
